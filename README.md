@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱Hi , i am Parv currently learning python<br> 
+😎Hi , i am Parv Sharman<br>🌱I'am currently learning Python
 
 
 ## 🌐 Socials:
